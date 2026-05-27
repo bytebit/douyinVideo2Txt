@@ -1,5 +1,4 @@
 链接: https://yun.139.com/shareweb/#/w/i/2v3EEEBx0aQib
-复制内容打开移动云盘PC客户端，操作更方便哦
 
 下载这个文件，在windows上运行。
 
